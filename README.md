@@ -1,0 +1,1 @@
+# lypa-integrated-school
